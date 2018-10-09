@@ -159,7 +159,7 @@ Fantasy Pros has Chris Finishing 7-6 as projected and 8-5 as upper limit. I agre
 Ian's got a solid team with a top 10 player at each major position. His debth RB situation may be of concern after hearing the news on Jay Ajayi. Still he has Thielen who has had an amazing year. Ian remains competitive and is in the upper echelon of points for every week. Assessing that RB situation must happen for Ian, if he plans to win it all.
 ### Analysis
 Saquon Barkley.
-<div style='position:relative; padding-bottom:56.25%'><iframe src='https://gfycat.com/ifr/WebbedLongAnemone' frameborder='0' scrolling='no' width='100%' height='100%' style='position:absolute;top:0;left:0;' allowfullscreen></iframe></div><p> <a href="https://gfycat.com/gifs/detail/WebbedLongAnemone"></a></p>
+[Saquon](https://thumbs.gfycat.com/WebbedLongAnemone-size_restricted.gif)
 
 He is sooo good. Barkley has given Ian a very sturdy RB to build around, which you absolutely must have if you want to win a fantasy Championship. Barkley continues to be almost a 20 ppg player. If Ian can get a little more depth, I think he could easily take it all. Im looking at Aaron Jones or Kerryon to breakout, if Ian has a shot to win it. If they do, Ians depth puts him above a lot of the other teams.
 
