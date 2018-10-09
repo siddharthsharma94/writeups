@@ -32,7 +32,7 @@ Justin was the 6th ranked team post draft. Justin had the 3rd best receivers wit
 Unfortunately the 2 stud receiver strat  didn't pay off, and through 5 weeks, according to the power rankings, strength of schedule, and a myriad of other stats, Justin is last in the league in Points For and 3rd highest in PA. Bad scheduling and an underperforming team doesn't sit well in fantasy, Justin needs to start trending up, and hopefully quick before the season ends.
 
 ### Moves Made
-Justin pulled the trigger on Hopkins, on a depth achieving trade netting TY Hilton and Tevin Coleman. It took his 2nd best receiver(at the time) to get the deal done. Hilton is hobbled right now but with Luck at QB, has been having a pretty good season averaging 13pts a game. Coleman is a good flex player who had a lot of stand alone value with Freeman being out. Given Freeman's injury history, he's a great handcuff, who is able to be flex'ed. A couple other players like this are Royce Freeman, and Austin Ekeler. Justin should turn it around with the Patriots looking back to their normal self, and Michael Thomas should continue playing well, and hopefully LeSean McCoy figuring out how to run again. Maybe a couple of snow games ought to do it. But if Justin doesn't get a win next week, we might see a Michael Thomas trade coming soon.
+Justin pulled the trigger on Hopkins, on a depth achieving trade netting TY Hilton and Tevin Coleman. It took his 2nd best receiver(at the time, Hopkins looks better now) to get the deal done. Hilton is hobbled right now (surprise surprise, Reece trades player who gets injured shortly after) but with Luck at QB, has been having a pretty good season averaging 13pts a game. Coleman is a good flex player who had a lot of stand alone value with Freeman being out. Given Freeman's injury history, he's a great handcuff, who is able to be flex'ed. A couple other players like this are Royce Freeman, and Austin Ekeler. Justin should turn it around with the Patriots looking back to their normal self, and Michael Thomas should continue playing well, and hopefully LeSean McCoy figuring out how to run again. Maybe a couple of snow games ought to do it. But if Justin doesn't get a win next week, we might see a Michael Thomas trade coming soon.
 
 ----------------
 
@@ -213,6 +213,7 @@ Jaiden put up 133 making him the top team. Followed by Anthony at 128 and me at 
 ## Highest Scoring Loser: 
 
 I'm sorry Dame, but I beat you. Long overdue. But Finally. Demons have been Exorcised.
+Dame would have beaten 8/11 teams this week. Anyone but me Jaiden and Anthony. Sowwie Dame. :(
 
 ## Lowest Scoring Winner: 
 
@@ -229,6 +230,10 @@ Guess who won this award. Just guess. Fucking James. Best and Worst start on the
 ## Worst Bench: 
 
 Weird week, all the winners had the best benches. Dame had the Worst loser bench of 32.3. Starting Tyler Lockett over Agholor wins Dame the game just barely this week. Thank god he didn't start him.
+
+## Bottom of the Barrel:
+
+I'm sorry Justin, you started the wrong QB, again. No combination of players gets you a win against Anthony this week. Justin should(and needs to) turn it around next week.
 
 
 ## Weekly Challenge: IDK YET DAME SEND IT BRO.
